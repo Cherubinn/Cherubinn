@@ -6,7 +6,7 @@
 
 ![](https://file.garden/aLcUmNZBvTGYyXJl/smallstars.pnj)
 
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/rosalina1.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#84edf0}"May the stars shine down on you"}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#84edf0}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> She ♡ They⠀⸝⠀18 <br> Zoology Major ⎯⎯⎯ Future UI Designer <br> ${\textsf{\color{#84edf0}INFP}}$⎯⎯Ambivertㅤ &&.ㅤ ${\textsf{\color{#84edf0}WWE}}$⎯⎯Superfan. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/>
+<img src="https://file.garden/aLcUmNZBvTGYyXJl/rosalina1.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#84edf0}"May the stars shine down on you"}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#84edf0}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> She ♡ They⠀⸝⠀18 <br> Vet Tech Major ⎯⎯⎯ Future UI Designer <br> ${\textsf{\color{#84edf0}INFP}}$⎯⎯Ambivertㅤ &&.ㅤ ${\textsf{\color{#84edf0}WWE}}$⎯⎯Superfan. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/>
 <div align="right">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=84EDF0&vCenter=true&width=435&lines=%22There+is+a+force+that+binds+us%2C;defying+even+time+and+space...%22" align="center" alt="Typing SVG" /></a>
 </div>  
